@@ -33,3 +33,9 @@ pun master
 average c++ fan
 
 kida sus
+
+### Nathansack (external membmer)
+
+He is standing here realising he will not make history
+
+aka the man in your study group who doesn't work
