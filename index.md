@@ -1,4 +1,4 @@
-# Overcoperative
+# Overcop
 Welcome !
 
 ## who are we ?
