@@ -28,7 +28,7 @@ gigachad html enjoyer
 
 pun master
 
-### JeanBaptou
+### Happy
 
 average c++ fan
 
